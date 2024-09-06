@@ -15,4 +15,3 @@ En iyi casino siteleri listesi:
 Casino Maxi https://shorturl.at/XS3zy
 Casino Metropol https://shorturl.at/2L0qX
 Bets10 https://shorturl.at/EPPA4
-[Bets10 ] (https://shorturl.at/EPPA4)
